@@ -1,1 +1,1 @@
-coding is cool by my own :)
+coding is cool to write by my own :)
